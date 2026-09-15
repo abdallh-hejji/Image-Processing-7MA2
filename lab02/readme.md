@@ -1,0 +1,1 @@
+slove lab 2
